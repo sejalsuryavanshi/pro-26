@@ -1,0 +1,2 @@
+first take pizza base
+then take container and put in tomato ,chilli sause,garlic and oregano spice mix and put this sause on base and then put on cheese,toppings such as panner, capsicum , onion, corn and then bake it or on  pan put some butter and put the pizza and cover it and your pizza is done!
